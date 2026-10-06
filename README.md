@@ -1,0 +1,1 @@
+# gate-hodler-airdrop-snapshot
